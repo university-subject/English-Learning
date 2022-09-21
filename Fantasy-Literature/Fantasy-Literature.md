@@ -23,3 +23,4 @@ Fantasy literature is literature set in an imaginary universe, often but not alw
 * The sandman
 * [how fantasy literature helped create the 21st century](https://electricliterature.com/jeff-ann-vandermeer-modern-fantasy/)
 * Southern Reach Trilogy
+* Call of Cathulhu

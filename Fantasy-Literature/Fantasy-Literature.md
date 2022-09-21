@@ -15,6 +15,7 @@ imagine the occurrence of; fantasize about.
 Fantasy literature is literature set in an imaginary universe, often but not always without any locations, events, or people from the real world.
 
 > We distinguish fantasy from horror or the weird by considering the story’s apparent purpose: fantasy isn’t primarily concerned with the creation of terror or the exploration of an altered state of being frightened, alienated, or fascinated by an eruption of the uncanny. -[how fantasy literature helped create the 21st century](https://electricliterature.com/jeff-ann-vandermeer-modern-fantasy/)
+
 > For us, the defining moment of fantasy is the encounter with the not-real, no matter how slight, and what that moment signifies. Sometimes it is the entire world and sometimes it is the slight distance from reality that allows a writer to bring our reality into focus in a meaningful way. -[how fantasy literature helped create the 21st century](https://electricliterature.com/jeff-ann-vandermeer-modern-fantasy/)
 
 ## Reading

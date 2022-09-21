@@ -12,6 +12,9 @@ imagine the occurrence of; fantasize about.
 "it is ludicrous to fantasy ‘disinventing’ the hydrogen bomb"
 
 # What is Fantasy Literature?
+Fantasy literature is literature set in an imaginary universe, often but not always without any locations, events, or people from the real world.
+
+> We distinguish fantasy from horror or the weird by considering the story’s apparent purpose: fantasy isn’t primarily concerned with the creation of terror or the exploration of an altered state of being frightened, alienated, or fascinated by an eruption of the uncanny. -[how fantasy literature helped create the 21st century](https://electricliterature.com/jeff-ann-vandermeer-modern-fantasy/)
 
 ## Reading
 * The power of rain

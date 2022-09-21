@@ -19,6 +19,7 @@ Fantasy literature is literature set in an imaginary universe, often but not alw
 > For us, the defining moment of fantasy is the encounter with the not-real, no matter how slight, and what that moment signifies. Sometimes it is the entire world and sometimes it is the slight distance from reality that allows a writer to bring our reality into focus in a meaningful way. -[how fantasy literature helped create the 21st century](https://electricliterature.com/jeff-ann-vandermeer-modern-fantasy/)
 
 # What is the difference between classical fantasy and modern fantasy?
+WWI and WWII make the difference.
 
 ## Reading
 * The power of rain

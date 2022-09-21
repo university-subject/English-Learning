@@ -14,5 +14,9 @@ imagine the occurrence of; fantasize about.
 # What is Fantasy Literature?
 
 ## Reading
+* The power of rain
+* Tolkien
+* The lord of ring
+* The sandman
 * [how fantasy literature helped create the 21st century](https://electricliterature.com/jeff-ann-vandermeer-modern-fantasy/)
 * Southern Reach Trilogy

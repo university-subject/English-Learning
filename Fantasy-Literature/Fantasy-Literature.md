@@ -48,3 +48,5 @@ Epic is about grand, life and big.
 feeling of alienation. we feel lonely and alone. lost identity. 
 
 Stephen R. Donaldson -> Why epic fantasy is important?
+
+neoliberalism -> body became product. Everyone is a product.

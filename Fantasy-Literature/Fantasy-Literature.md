@@ -35,3 +35,8 @@ How we create a imaginary world.
 
 ## watching
 * Disenchantment
+
+## Epic Fantasy
+Begining of epic is poetry.
+
+Epic Homer poetry. -> lliad, odesey.

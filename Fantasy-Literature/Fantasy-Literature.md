@@ -39,4 +39,12 @@ How we create a imaginary world.
 ## Epic Fantasy
 Begining of epic is poetry.
 
-Epic Homer poetry. -> lliad, odesey.
+Epic Homer poetry. $\Rightarrow$ lliad, odesey.
+
+Epic is about grand, life and big.
+
+20th realist fiction -> realism is ablout real life. 
+
+feeling of alienation. we feel lonely and alone. lost identity. 
+
+Stephen R. Donaldson -> Why epic fantasy is important?

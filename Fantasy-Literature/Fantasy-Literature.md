@@ -45,7 +45,7 @@ Epic is about grand, life and big.
 
 20th realist fiction -> realism is ablout real life. 
 
-feeling of alienation. we feel lonely and alone. lost identity. 
+feeling of alienation. we feel lonely and alone. lost identity. from the world we living. 
 
 Stephen R. Donaldson -> Why epic fantasy is important?
 

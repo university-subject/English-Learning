@@ -56,3 +56,9 @@ Hero -> King Arthur, Beowulf
 [The wheel of time](https://www.youtube.com/watch?v=11ZozKfRqvA)
 
 Reintegration
+
+# Wheel of time episode 1-3
+## Discuss the narrative in episode 1-3 (storylines and objectives), What do you thik the director is trying to do in terms of story structure?
+## Characterize your favorite and least favorite characters(use the TV show to substantiate your answer)
+## Discuss your impression of the show and compare it to previous popular fantasy works(tropes and genre)
+## Please identify your favorite scenes and explain your reasons

@@ -1,7 +1,7 @@
 ## Introduction(Summary of the plot)
 ## Author
 ---
-## world building
+## Worldbuilding
 ## Magic
 ## Monster
 ---

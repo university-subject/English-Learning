@@ -1,4 +1,5 @@
 ## Introduction(Summary of the plot)
+## Author
 ---
 ## world building
 ## Magic
